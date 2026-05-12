@@ -1,4 +1,4 @@
-# 
+# perpetual trading bot best Strategy | webhook-support & slippage-control is the best perpetual trading bot, featuring webhook-support and slippage-control. Smart, fast, and
 
 
 
